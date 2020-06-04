@@ -1,0 +1,2 @@
+# HCLHackerEarthChallenge
+All YOU NEED TO KNOW:  Are you ready to bridge the gap between possibilities and reality? If yes, this is the opportunity for you to get a dream job at HCL Technologies in Noida.   HCL Technologies is looking to hire machine learning enthusiasts both freshers and working professionals who can come up with the most practically efficient, well-engineered solutions to text extraction and image processing problems. 
